@@ -1,5 +1,1 @@
-AGAINSTARTED !!STARTED !!datadatadatadataAAAAA# hello
-dfdfddf
-bydfdfdfe
-xsxssxsxsx
-done!!
+STARTED
